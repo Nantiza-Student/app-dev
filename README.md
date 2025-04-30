@@ -1,11 +1,11 @@
-# Top 3
-## Movies that are fun to watch
+# **Top 3**
+## **Movies that are fun to watch**
 ### ___________
 
 **bold text**  
 *italicized text*
 
-> blockquote  
+> Top 3  
 > 1. Avengers: End Game  
 > 2. How to Train Your Dragon  
 > 3. Interstellar  
