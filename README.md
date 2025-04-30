@@ -1,5 +1,5 @@
-# **Top 3**
-## **Movies that are fun to watch**
+# _**Top 3**_
+## _**Movies that are fun to watch**_
 ### ___________
 
 **bold text**  
