@@ -5,7 +5,7 @@
 **bold text**  
 *italicized text*
 
-> Top 3  
+> _Top 3_  
 > 1. Avengers: End Game  
 > 2. How to Train Your Dragon  
 > 3. Interstellar  
