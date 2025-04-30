@@ -18,7 +18,7 @@
 
 ![Avengers: End Game](https://github.com/user-attachments/assets/c5bf578a-ec61-400a-9916-648e806b7bec)
 
-[How to Train Your Dragon] (https://www.google.com/search?gs_ssp=eJzj4tVP1zc0zC4oLyvJSKs0YPSSyMgvVyjJVygpSszMU6jMLy1SSClKTM_PAwAiqQ5u&q=how+to+train+your+dragon&oq=How+to+&gs_lcrp=EgZjaHJvbWUqEggBEC4YQxjUAhixAxiABBiKBTIGCAAQRRg5MhIIARAuGEMY1AIYsQMYgAQYigUyBggCEEUYOzIGCAMQRRg7MgYIBBBFGDsyDAgFECMYJxiABBiKBTIGCAYQIxgnMhIIBxAuGEMY1AIYsQMYgAQYigUyDAgIEC4YQxiABBiKBTIMCAkQLhhDGIAEGIoF0gEINDc4N2owajeoAgCwAgA&sourceid=chrome&ie=UTF-8)
+[How to Train Your Dragon](https://www.google.com/search?gs_ssp=eJzj4tVP1zc0zC4oLyvJSKs0YPSSyMgvVyjJVygpSszMU6jMLy1SSClKTM_PAwAiqQ5u&q=how+to+train+your+dragon&oq=How+to+&gs_lcrp=EgZjaHJvbWUqEggBEC4YQxjUAhixAxiABBiKBTIGCAAQRRg5MhIIARAuGEMY1AIYsQMYgAQYigUyBggCEEUYOzIGCAMQRRg7MgYIBBBFGDsyDAgFECMYJxiABBiKBTIGCAYQIxgnMhIIBxAuGEMY1AIYsQMYgAQYigUyDAgIEC4YQxiABBiKBTIMCAkQLhhDGIAEGIoF0gEINDc4N2owajeoAgCwAgA&sourceid=chrome&ie=UTF-8)
 
-![How to Train Your Dragon] (![HowtoTrainYourDragon](https://github.com/user-attachments/assets/7d314a86-84f2-4799-b06d-9c0dc54bb32e)
+(![HowtoTrainYourDragon](https://github.com/user-attachments/assets/7d314a86-84f2-4799-b06d-9c0dc54bb32e)
 
